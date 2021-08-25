@@ -16,4 +16,5 @@ E vou chegar lá!
  - Sou Nerd (e não tenho vergonha em dizê-lo)
  - Sou do Recife (#ComOrgulhoeComSaudade)
  - Adoro cachorros
+ ***************
 
